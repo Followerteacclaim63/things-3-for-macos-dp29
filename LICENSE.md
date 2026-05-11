@@ -1,4 +1,4 @@
-#  
+#  updated Things 3 for macOS Tool | database templates + widgets offers the most advanced Things 3 for macOS tool, with database templates and widgets. Ideal for professionals.
 
 
 
